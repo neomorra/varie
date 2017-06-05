@@ -1,13 +1,13 @@
-##Cap. 180.
+## Cap. 180.
 
-#Dello abattimento de partesana sola a corpo per corpo.
+# Dello abattimento de partesana sola a corpo per corpo.
 
 Io voglio comenciare al nome de Dio uno abattimento de partesana sola manesca da solo a solo, facendote 
 intendere che havendo da insegnare a homo alcuno che havesse, per sua differentia, da combattere della 
 detta partesana, io voglio che tu li daghi de queste cose, le quale tu troverai qui de sotto in questo; 
 adonque ponili fantasia, perchè io voglio comenciare la prima parte al nome de Dio.
 
-##Prima parte.
+## Prima parte.
 
 Adonque in questo principio, per galantaria, tu te assetterai con la gamba dritta apresso della mancha, 
 pur quatro dita inanci el calzo della partesana tua apreso della ponta del tuo piè dritto, mettando la
@@ -20,7 +20,7 @@ tua con tutte due le mani, ma la drita serà apresso del calzo e la manca dinanc
 tu passi della tua gamba mancha uno gran passo inanci apresso del nimico e lì voglio che tu sie paciente, 
 cioè tu starai a vedere quello che vorrà fare el sopradetto tuo inimico.
 
-##Seconda parte.
+## Seconda parte.
 
 Hora, essendo arrivato appresso del tuo inimico, per farte avertito che quando te trovasse a uno simile 
 parangone, io voglio che sempre mai tu pigli la partesana tua manescamente, cioè li nodi della tua mano 
@@ -34,7 +34,7 @@ l’asta tua tu la butterai inentro verso le tue parte dritte e sì li darai a l
 un poco del tuo piè mancho inanci, in el petto o in la facia, non lassando mai la partesana tua con la 
 mano mancha, ritornando pure in quella medesima guardia; e lì serai un’altra volta paciente.
 
-##Tertia parte.
+## Tertia parte.
 
 Ma sappi che essendo tornato in quella guardia come prima te dissi in ne la parte precedente, tu te
 metterai con la partesana tua pure come io te amaestrai in la prima parte di questo; e de qui voglio 
@@ -86,7 +86,7 @@ mano tua mancha dinanci dalla dritta e la dritta de drieto, apresso del calzo de
 assetterai con la tua gamba mancha inanci, con la ponta della sopradetta inance per lo dritto del nimico, 
 a l’inscontro della facia sua e tenerai le tue bracie ben distese e polite.
 
-##Sesta parte.
+## Sesta parte.
 
 Essendo con la partesana in mano scontro al tuo inimico, tu sai ch’io te dissi in nella quinta parte, che tu 
 haveressi la tua man mancha dinanci dalla dritta e la tua gamba dritta seria de drieto dalla tua mancha e 
@@ -111,9 +111,9 @@ mancha inanci, voglio che tu usi sempre questo parato, perchè l’è uno bello 
 
  
 
-##Cap. 181.
+## Cap. 181.
 
-#Della finitione de partesana sola.
+# Della finitione de partesana sola.
 
 Io non voglio più componere in questa arte de partesana sola manescha cosa alcuna, perchè sapendo tu che in nel’armi 
 d’asta non gli è troppe botte, perchè generalmente el non se tra’ quasi se non de ponta, dalla roncha e alabarda in 
